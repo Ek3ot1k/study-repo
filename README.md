@@ -6,3 +6,8 @@
 - vodnvd
 - kjvrngkvn
 - vldngdn
+
+
+- jnvfdlv
+- ovmfovmomo
+- [s[[dlv[sl[ss]s]]]]
