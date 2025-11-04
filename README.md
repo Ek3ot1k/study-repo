@@ -1,6 +1,6 @@
 # study-repo
 
-## My project plan
+## My super project
 
 - jvdnfnjd
 - vodnvd
